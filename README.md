@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil #gh-dark-mode-only
+### Boas vindas ao meu perfil
 > **Me recuso a colocar informações pessoais tais como instagram* *
 
 Meu nome é **João**
